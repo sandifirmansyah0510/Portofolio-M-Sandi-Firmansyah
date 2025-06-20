@@ -13,7 +13,7 @@
 
  **Membangun Masa Depan Pertanian dan Peternakan Indonesia 🇮🇩🌾**
  
- Saya **M Sandi Firmansyah** adalah seorang **inovator muda** yang tumbuh besar di tengah kearifan lokal **pertanian dan peternakan** di pedesaan. Berbekal pemahaman mendalam tentang tantangan dan potensi sektor ini, saya berdedikasi untuk **menciptakan solusi teknologi sederhana** namun signifikan yang mampu mendorong **efisiensi dan keberlanjutan**.
+ Saya **M Sandi Firmansyah** adalah seorang **inovator muda** yang tumbuh besar di tengah kearifan lokal **pertanian dan peternakan** di pedesaan. Berbekal pemahaman mendalam tentang tantangan dan potensi sektor ini, saya berkerja keras dan bersunguh-sungguh untuk **menciptakan solusi teknologi sederhana** namun signifikan yang mampu mendorong **efisiensi dan keberlanjutan**.
 - Melalui pengembangan alat tepat guna 🛠️
 - Pemanfaatan limbah ♻️
 - dokumentasi visual 📹
